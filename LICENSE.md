@@ -1,4 +1,4 @@
-# 
+# Principal Ableton Live extensiones para Mac OS | Profesional Ableton Live extensiones para PC Windows. Con remapeo de tiempo y rollo de piano — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
